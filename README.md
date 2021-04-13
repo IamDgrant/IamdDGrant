@@ -15,7 +15,7 @@
 
 
 #### Other Social Medias
- 💼 [LinkedIn](https://www.linkedin.com/in/andre-grant-43a6221aa/ | 📧 [Email](mailto:IamDGrant@me.com)
+ 💼 [LinkedIn](https://www.linkedin.com/in/andre-grant-43a6221aa/ | 💼 [Angel List]https://angel.co/u/andre-grant-2 | 📧 [Email](mailto:IamDGrant@me.com)
  
 
 Last Edited on: 04/13/2021
